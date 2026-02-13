@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Hamusonde Muntanga
 
 🚀 **Teen Tech Entrepreneur | Software Developer | Founder of Thinkers Tech**  
-📍 Livingstone, Zambia 🇿🇲
+📍 Lusaka, Zambia 🇿🇲
 
 ---
 
